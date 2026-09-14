@@ -1,0 +1,2 @@
+# 61959ef1-fe19-4368-b6d9-a527289289e6-hero-3
+Hero section variant 3 for 61959ef1-fe19-4368-b6d9-a527289289e6
